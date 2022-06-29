@@ -1,0 +1,2 @@
+# DINO-KING
+Paid Repo :)
